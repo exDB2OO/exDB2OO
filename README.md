@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @exDB2OO. since July 2021 again DB2OO, German radio amateur
-- 👀 I’m interested in ham/amatuer radio and particularly homebrewing
+- 👀 I’m interested in ham/amateur radio and particularly homebrewing
 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
